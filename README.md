@@ -2,7 +2,7 @@
 
 [![Watch the video](toVideo.jpg)](https://bingcomputing.hotglue.me/?winkSmile)
 
-Click image to acess the project page (https://bingcomputing.hotglue.me/?winkSmile)
+Videos and project details check project page [HERE](https://bingcomputing.hotglue.me/?winkSmile)
 
 2019
 
